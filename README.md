@@ -1,0 +1,1 @@
+# UST-HTML-GAME-no-CSS-no-JS
